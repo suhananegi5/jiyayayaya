@@ -1,2 +1,2 @@
-# jiyayayaya
-Its a website for a friend
+# website
+ayooo
